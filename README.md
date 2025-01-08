@@ -1,16 +1,19 @@
-## Hi there 👋
+黑料网曝门黑料吃瓜区
 
-<!--
-**tidag8751/tidag8751** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<a href="https://2ndjcj11.kesang6to.com?https://github.com">→→最/新/观/看/入/口←←</a>
 
-Here are some ideas to get you started:
+黑料爆料-热门吃瓜-黑料不打烊黑料老司机,不打烊,heiliaoHL黑料门-今日黑料-最新反差黑料不打烊-黑料不打烊 吃瓜曝光88黑料门-今日黑料-最新黑料网曝门黑料吃瓜区黑料吃瓜反差婊爆料上海黑料不打烊最新进去口梅家人死得确实有点太容易了。
+Imitate the QT interface of Hikvision vision master 
+但公主殿下是怎么把陛下跟“仁慈”二字联系起来的？
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+忽然间，有人福至心灵。
+
+陛下的杀人，是一招毙命。
+
+殿下的杀人，是杀人诛心。
+
+跟公主殿下的手段相比，陛下或许真的有些仁慈了。
+
+第686章仙侠文吃瓜种田日常（62）
+
+安排好事情，锦晏刚要离开，锦瑟却突然冲了过来。
